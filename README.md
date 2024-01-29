@@ -6,4 +6,3 @@ Having to wake up early.
            
 1. a happy: what's the best thing that happened since school started?
 Learning new stuff.
-
